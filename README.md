@@ -1,1 +1,0 @@
-Could you let me know your skype ID?
